@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nellarh a business analyst
+- 👀 I’m interested in working with anyone who is directly impacted by the projected
+- 🌱 I’m currently learning and doing real life scenerios of the various BA knowlegde areas
+- 💞️ I’m looking to collaborate on working on several projects with the project manager,devloper and stakeholders
+- 📫 I can be reached on neroigbru@outlook.com
